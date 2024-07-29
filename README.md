@@ -2,7 +2,7 @@
 
 Hello! I’m Akshad Sukhia, an 18-year-old student pursuing a degree in Computer Science Engineering at Pallavi Engineering College, currently in my second year. I’m passionate about coding and have been actively involved in game development. My projects include an FPS shooter, a car racing game, and various mods for Minecraft Bedrock Edition. I also dipped my toes in mobile app development.
 
-I enjoy exploring new technologies and pushing the boundaries of what’s possible in gaming. If you’re interested in discussing tech, gaming, or just want to connect, feel free to reach out to me on Instagram (@akshadpro2006) or Twitter (@akshadpro2006). I’m always open to collaboration and new ideas!
+I enjoy exploring new technologies and pushing the boundaries of what’s possible in gaming. If you’re interested in discussing tech, gaming, or just want to connect, feel free to reach out to me on Instagram (@akshadpro2006) or X(Formerly Twitter) (@akshadpro2006). I’m always open to collaboration and new ideas!
 
 ###
 
